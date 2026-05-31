@@ -1,5 +1,6 @@
 <img width="2048" height="1193" alt="image" src="https://github.com/user-attachments/assets/e286a773-948b-4025-8a7b-051993eff4f0" />
 
+<img width="1800" height="1200" alt="image" src="https://github.com/user-attachments/assets/e115027a-c760-4bb6-91df-4d9fde4b9cc6" />
 
 Trong ảnh dưới đây là yếu quyết về "Độc hành Đạo" của Miyamoto Musashi, nói về những điều nên theo khi đi một mình trên con đường tu luyện đơn độc.
 
