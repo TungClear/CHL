@@ -1,5 +1,12 @@
 ## Thảo luận về chỉnh tư thế Trạm Trang và Lục Tức
 
+Xin chào anh Lĩnh, chào các đồng môn.
+Em năm nay 40 tuổi. Em xin hỏi thế đứng trạm trang của em như này cần chỉnh gì không ạ?
+1. Khi đứng tập thì người em muốn chân rộng (có khi rộng hơn vai). Và em thấy tập trung vào huyệt giữa lòng bàn chân thì sẽ không thấy mỏi đùi. Khi đứng thế Thận thì hơi nghiêng người (giống anh chỉ) thì thấy dễ chịu hơn là cứ đứng thẳng.
+2. Phần cuối là là em tập Lục tức đạo ạ. Điện thoại cùi bắp nên là đoạn cuối chẳng hiểu sao không quay được. Em mới tập tầm 1 tháng. Những ngày mới tập thì hít thở không được dài (tầm 70 giây). Sau khi tập 1 tháng thì hít thở dài hơn (khoảng 120 giây). Khi xoay cổ tay để hít vào và sau khi hít căng bụng dưới phần Đan điền thì em nín thở (không ép nín thở mà tự cảm giác nín thở).
+Anh nói nên đi học trường lớp bài bản thì em đã tập được 9 buổi Thái cực quyền và tập các bài tập Luyện công theo Thái cực quyền, bài 24 thức. CLB gồm các bà toàn trên 80 tuổi, nên CLB tập chậm theo lối dưỡng sinh (phù hợp với yêu cầu của em là để dẻo dai gân cốt + kết nối cơ thể thôi ạ). Khi tập thì em thường chủ động tập chậm để quan sát cơ thể.
+Em xin cảm ơn ạ.
+
 **Trần Quang Khải**:
 
 Oh bà chị đứng Trạm Trang siêu thế.
