@@ -7,13 +7,10 @@ Em năm nay 40 tuổi. Em xin hỏi thế đứng trạm trang của em như nà
 Anh nói nên đi học trường lớp bài bản thì em đã tập được 9 buổi Thái cực quyền và tập các bài tập Luyện công theo Thái cực quyền, bài 24 thức. CLB gồm các bà toàn trên 80 tuổi, nên CLB tập chậm theo lối dưỡng sinh (phù hợp với yêu cầu của em là để dẻo dai gân cốt + kết nối cơ thể thôi ạ). Khi tập thì em thường chủ động tập chậm để quan sát cơ thể.
 Em xin cảm ơn ạ.
 <img width="1522" height="1526" alt="image" src="https://github.com/user-attachments/assets/8777ecc5-999d-495c-b5d1-8b747e17390d" />
-
-<img width="1522" height="1526" alt="image" src="https://github.com/user-attachments/assets/43242ab1-c823-4b4d-ab4a-56e35fa86668" />
-
-<img width="1522" height="1526" alt="image" src="https://github.com/user-attachments/assets/7bf166f0-d18c-4910-ab9e-a71232339bf9" />
-
-<img width="1522" height="1526" alt="image" src="https://github.com/user-attachments/assets/8371ab9f-02e8-4fda-9021-085d47b73304" />
-<img width="1522" height="1526" alt="image" src="https://github.com/user-attachments/assets/120256e2-76ed-4f50-bf39-f8e433e779fb" />
+<img width="1514" height="1558" alt="image" src="https://github.com/user-attachments/assets/7d0f73fa-1d69-43fa-bf76-90846eb3345d" />
+<img width="1514" height="1534" alt="image" src="https://github.com/user-attachments/assets/cf6f48fa-d66e-41ae-905d-31f1091e43f8" />
+<img width="1514" height="1550" alt="image" src="https://github.com/user-attachments/assets/66172be3-e6c5-4101-a7aa-39ca193c94d7" />
+<img width="1560" height="1526" alt="image" src="https://github.com/user-attachments/assets/b2680a68-9c21-47fe-bdb4-1a3d730b27ac" />
 
 **Trần Quang Khải**:
 
