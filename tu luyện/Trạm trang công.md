@@ -76,6 +76,19 @@ Thức thứ 5: Phế kinh Sau khi đứng thế thứ tư thận kinh- thí d�
 
 <img width="1652" height="1482" alt="image" src="https://github.com/user-attachments/assets/736f9408-58eb-4ad6-8459-9e9fe0032dad" />
 
+1. Khi đứng trạm trang, hai chân phải hơi giống như trong ảnh phía dưới, nhưng hẹp hơn một chút.
+Hai mũi bàn chân song song chĩa ra phía trước, hai đầu gối mở sang hai bên.
+Phần xương ống chân từ bàn chân lên đến đầu gối phải càng vuông góc với mặt đất càng tốt. Như thế, khi đứng thả lỏng đúng, thì sẽ có cảm giác như hai ống chân đâm thẳng xuống mặt đất, nhưng không mỏi, không đau gì cả.
+2. Cách giữ tư thế tay và di chuyển cánh tay: Trong các vận động làm các việc bình thường trong ngày, cháu nên chú ý để làm sao cảm nhận được các nhóm cơ ở hông, các nhóm cơ lớn ở ngực và lưng đang vận động như thế nào.
+Sau đó, khi đứng trạm trang, để giữ tư thế tay ổn định thì không dùng cơ vai và cơ tay nhiều quá, mà chủ yếu là dùng các nhóm cơ từ hông ra ngực và lưng dẫn tới vai, cánh tay, bàn tay để giữ hình.
+Khi nâng tay để chuyển từ vị trí này sang vị trí khác, thì khởi vận động từ eo, dẫn ra các nhóm cơ ngực và lưng, rồi ra vai, ra cánh tay, dẫn tới vận động cánh tay để đổi vị trí.
+Sau đó dùng các nhóm cơ ở ngực và lưng để giữ hình, hạn chế dùng cơ vai, cơ cánh tay.
+*
+Đến lúc nào cảm nhận được năng lượng chạy trong người, thì lực phát ra sẽ là nội lực từ đan điền ra hông, eo, ra lưng, ngực, ra vai, ra cánh tay, bàn tay, ngón tay. Nhưng mà đấy là chuyện sau này.
+*
+Mới tập thì phải dùng gân, cơ trước đã. Tập trung dùng từ eo, thả lỏng vai, thì dần dần các gân, cơ mới lỏng, rơi xuống dưới và kết nối vào các phần phía dưới của cơ thể.
+Không có mô tả ảnh.
+
 
 Bí quyết về hình Hỏi: Xin nói rõ hơn về người khi tập trang công hơi đẩy trọng tâm về phía trước,hoặc phía sau để làm gì? Đáp: Tạm mượn một hình ảnh của Trần thức. So sánh 2 hình các bạn sẽ thấy trọng tâm của Trần thức đặt ở gót chân. Lối này cho những người dưỡng sinh lớn tuổi gối đã yếu, thế đứng khó trụ vững chảy, chỉ đụng nhẹ sẽ ngã ra sau. Đối với người tập võ thì không nên tập lối này. Cho dù người yếu gối sau một thời gian tập luyện cũng nên dần dần đẩy trọng tâm về giữa bàn chân, về phương diện khí thì sẽ nối liền Dũng tuyền và Hội âm, có khả năng sửa gối, cũng giúp ích phát kình như là sức búng ra.
 
