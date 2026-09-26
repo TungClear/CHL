@@ -89,6 +89,7 @@ Sau đó dùng các nhóm cơ ở ngực và lưng để giữ hình, hạn ch�
 Mới tập thì phải dùng gân, cơ trước đã. Tập trung dùng từ eo, thả lỏng vai, thì dần dần các gân, cơ mới lỏng, rơi xuống dưới và kết nối vào các phần phía dưới của cơ thể.
 Không có mô tả ảnh.
 
+=============================
 
 Bí quyết về hình Hỏi: Xin nói rõ hơn về người khi tập trang công hơi đẩy trọng tâm về phía trước,hoặc phía sau để làm gì? Đáp: Tạm mượn một hình ảnh của Trần thức. So sánh 2 hình các bạn sẽ thấy trọng tâm của Trần thức đặt ở gót chân. Lối này cho những người dưỡng sinh lớn tuổi gối đã yếu, thế đứng khó trụ vững chảy, chỉ đụng nhẹ sẽ ngã ra sau. Đối với người tập võ thì không nên tập lối này. Cho dù người yếu gối sau một thời gian tập luyện cũng nên dần dần đẩy trọng tâm về giữa bàn chân, về phương diện khí thì sẽ nối liền Dũng tuyền và Hội âm, có khả năng sửa gối, cũng giúp ích phát kình như là sức búng ra.
 
