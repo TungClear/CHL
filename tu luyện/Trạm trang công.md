@@ -89,6 +89,321 @@ Sau đó dùng các nhóm cơ ở ngực và lưng để giữ hình, hạn ch�
 Mới tập thì phải dùng gân, cơ trước đã. Tập trung dùng từ eo, thả lỏng vai, thì dần dần các gân, cơ mới lỏng, rơi xuống dưới và kết nối vào các phần phía dưới của cơ thể.
 Không có mô tả ảnh.
 
+---
+**Son Nguyen**:
+
+Thưa chú, nếu mũi chân với đầu gối không align với nhau thì sao ạ?
+
+Ví dụ:
+
+- Mũi chân song song
+- Đầu gối hơi hướng vào nhau
+- Gót chân chĩa ra ngoài
+
+Có sao không ạ?
+
+**Châu Hồng Lĩnh**:
+
+Đôi khi chú hơi nghi ngờ không biết cháu có biết chữ không hoặc có đọc những gì chú viết hay không.
+
+Trong bài nói về hình chân đứng Trạm Trang, chú đã nói:
+
+> Hai bàn chân song song, mũi bàn chân chĩa về phía trước, hai đầu gối mở ra hai bên.
+
+Lại còn có cả ảnh minh họa.
+
+Thế mà cháu lại đi hỏi chuyện:
+
+> Hai đầu gối hơi hướng vào nhau.
+
+để làm cái gì?
+
+Tuy nhiên chú cũng không khẳng định lối đứng của chú là duy nhất đúng.
+
+Ai đứng được thế nào, miễn là không bị:
+
+- Hỏng khớp
+- Hỏng gân cơ
+
+trong quá trình đứng thì cứ đứng thế đấy thôi.
+
+Hồi mới tập, chú đứng cũng khác thế này, cũng không sao cả. 🤣
+
+**Son Nguyen**:
+
+Dạ, cháu hỏi vì thường mũi chân với đầu gối có cùng hướng.
+
+Nhưng với người bàn chân bẹt thì mũi chân và đầu gối có thể hướng khác nhau.
+
+Ví dụ đứng nghiêm thì đầu gối thẳng nhưng mũi chân lại hướng ra ngoài thay vì hướng thẳng.
+
+Nếu xoay để mũi chân song song thì tự hai đầu gối sẽ hướng vào trong.
+
+Khi hạ thấp trọng tâm thì sẽ giống thế đứng lúc tập 6 hơi thở.
+
+**Châu Hồng Lĩnh**:
+
+Cái nguy hiểm của người tập võ cũng như người lập trình là:
+
+- Tập cái này thì liên tưởng sang cái kia.
+- Học cái này thì liên tưởng sang cái kia.
+
+Liên tưởng và so sánh không có gì xấu.
+
+Nhưng nó rất xấu khi người ta không nhận thức được:
+
+- Fundamental Knowledge
+- Underlying Principles
+
+mà cứ đo đếm các thứ trên ngọn.
+
+Ví dụ:
+
+> Đứng khi tập Sáu Hơi Thở thì có liên quan gì đến đứng khi Trạm Trang?
+
+Fundamental Knowledge và Underlying Principles là:
+
+- Trạng thái cơ thể
+- Trạng thái tâm trí
+- Nguồn gốc của việc giữ thăng bằng tĩnh tại
+- Nguồn gốc và phương thức phát sinh vận động
+
+Những thứ trên ngọn là:
+
+- Tư thế chân
+- Tư thế tay
+- ...
+
+Giống như học Ruby rồi lại hỏi:
+
+> Sao trong Java tôi hay viết thế này mà trong Ruby phải viết thế kia?
+
+Hoặc:
+
+> Sao trong Java dùng Design Pattern này mà Ruby không dùng?
+
+Nếu thế thì cứ dùng Java đi.
+
+Còn học Ruby làm cái chó gì.
+
+Fundamental Knowledge và Underlying Principles là:
+
+- Tuần tự
+- Rẽ nhánh
+- Lặp
+- Encapsulation
+- Inheritance
+- Polymorphism
+
+Còn những thứ trên ngọn thì bấu víu làm gì?
+
+**Son Nguyen**:
+
+Dạ, hai thế đứng không liên quan đến nhau ạ.
+
+Cháu nhắc đến thế đứng 6 hơi thở để mọi người dễ hình dung hơn thôi.
+
+Ý cháu là với kiểu bàn chân ấy:
+
+- Nếu mũi chân song song thì đầu gối hướng vào trong.
+- Nếu đầu gối mở ra như trong ảnh thì lại không tự nhiên.
+
+Vì thế nên cháu mới hỏi.
+
+**Châu Hồng Lĩnh**:
+
+Nếu đứng mà thấy không tự nhiên tức là thế đứng còn sai.
+
+Chỉ cần vi chỉnh:
+
+- Chỗ này một tí
+- Chỗ kia một tí
+
+cho nó đúng trở lại.
+
+Cảm giác khi tu luyện phải là:
+
+- Thả lỏng
+- Thoải mái
+- Nhẹ nhàng
+
+chứ không phải là cố.
+
+---
+
+## Thảo luận về thời gian tập Trạm Trang
+
+**Khue Ho**:
+
+Anh cho em hỏi chút về việc tập Trạm Trang của em ạ.
+
+### 1. Về việc bị lệch trái
+
+Em hiện đứng Trạm Trang thì có cảm thấy năng lượng ở bàn tay là đều.
+
+Lần nào tập cũng cảm thấy:
+
+- Ấm
+- Nóng
+- Ngứa
+
+Nhưng chỉ tập trung ở bên tay trái.
+
+Bên phải có nhưng ít hơn.
+
+Ngoài ra sau khi thay đổi thế đứng chân và tập trung vào huyệt Dũng Tuyền như anh nói thì em cảm thấy vững vàng hơn.
+
+Em cảm thấy ở chân trái có một sợi dây như rễ cây chạy từ bắp chân vòng ra phía bàn chân rồi ôm xuống đất.
+
+Em cảm thấy vài lần nhưng không thấy gì ở chân phải.
+
+Em có cần điều chỉnh gì để cân bằng hai bên không ạ?
+
+### 2. Về sự điều độ
+
+Em có câu hỏi về thời gian tập tối đa cho bài Trạm Trang.
+
+Ở đây tối đa nghĩa là:
+
+> Tối ưu để đạt hiệu quả nhiều nhất đối với người mới tập.
+
+Anh từng chia sẻ:
+
+- Mỗi thế 3 phút là có hiệu quả.
+- Có người tập 8 giờ/ngày nhưng không có hiệu quả.
+
+Hiện em cảm thấy đứng Trạm Trang rất thoải mái và có thể đứng nhiều hơn.
+
+Nhưng em không rõ đâu là giới hạn tối ưu.
+
+Trong hai trường hợp:
+
+1. Đứng Trạm Trang hằng ngày.
+2. Đứng Trạm Trang trong đợt tập luyện ngắn ngày (ví dụ đi Big Sur hoặc Rocky Mountain, cắm trại, nhiều thời gian rảnh).
+
+**Châu Hồng Lĩnh**:
+
+1. Cơ thể chú bên trái có kinh mạch thông hơn bên phải.
+
+Không sao đâu.
+
+Kệ nó đi.
+
+2. Nếu chú đứng mỗi thế 3 phút thoải mái rồi thì tăng lên mỗi thế 5 phút đi.
+
+Nhưng thời gian không quan trọng bằng chất lượng.
+
+Nghĩa là:
+
+> Mỗi một phút chú đứng, càng ngày càng phải quan sát được nhiều thứ hơn trong cơ thể và trong tinh thần mình.
+
+Nói chung cứ tập như thế là OK rồi.
+
+Còn ở Big Sur hay Rocky Mountain mà thừa thời gian thì:
+
+- Luyện Tiểu Niệm Đầu
+- Luyện đi lại trên đường núi
+- Càng ít dùng gân cơ càng tốt
+
+## Thảo luận về tư thế chân trong Ngũ Hành Trạm Trang
+
+**Trần Quang Khải**:
+
+Đại ca Châu Hồng Lĩnh cho em hỏi:
+
+Cái tư thế chân trong Ngũ Hành Trạm Công (ở 4/5 động tác) có cách nào để biết là mình làm đúng hay sai không anh?
+
+Em đang cố gắng tinh chỉnh cái chân nhưng thấy thật sự khó.
+
+Đứng theo kiểu:
+
+- Cầu đá
+- Hai bàn chân song song
+- Gối hơi thả xuống
+- Cố gắng chân vuông góc với đất
+
+Nhưng tập xong vài phút thì thấy rất mỏi nhức đầu gối.
+
+Có vẻ nó bị dồn lực và căng cứng để giữ cân bằng (cho khỏi ngã ra sau).
+
+Nên em nghĩ là đã sai gì đó về cấu trúc chân.
+
+Em đọc trên mạng thì nó bảo:
+
+> Nếu đúng thì tập xong phải mỏi ở đùi còn khớp gối không sao.
+
+Không biết có đúng không.
+
+**Châu Hồng Lĩnh**:
+
+Trên mạng nó nói láo đấy.
+
+Tập đúng là cả người phải không làm sao cả.
+
+Đứng phải thấy thoải mái.
+
+Chân không mỏi gì cả.
+
+Chú cứ:
+
+- Đứng bình thường
+- Thẳng người
+- Thẳng chân
+- Hai bàn chân song song
+- Mũi chân chĩa ra phía trước
+- Hai bàn chân cách nhau khoảng một vai rưỡi
+
+Sau đó hình dung là có một cái ghế tương đối cao ở sau lưng mình rồi hơi ngồi xuống.
+
+Trong khi ngồi thì đầu gối mở ra hai bên là OK.
+
+Làm sao để đoạn xương từ đầu gối xuống đến bàn chân càng vuông góc với mặt đất càng tốt.
+
+Nhưng lúc đầu cũng không cần tuyệt đối vuông góc.
+
+Sức nặng trên hai chân phải dồn xuống huyệt Dũng Tuyền ở lòng bàn chân rồi chạy xuống đất.
+
+Như thế thì người mới không đổ ra sau hoặc ra trước.
+
+=============================
+
+Cuộc hội thoại tập trung vào việc so sánh Tự Nhiên Trang, Vô Cực Trang và Ngũ Hành Trạm Trang, đồng thời giải thích cách tập luyện phù hợp cho người mới bắt đầu.
+
+1. Bản chất của Tự Nhiên Trang và Vô Cực Trang
+
+Tự Nhiên Trang hay Vô Cực Trang thì cũng là Trạm Trang thôi. Nhưng muốn đứng kiểu đó có hiệu quả thì: 
+  - Cơ thể phải tương đối chuẩn
+  - Tâm trí phải tương đối chuẩn Nếu không thì người tập chỉ đơn giản là đứng chơi.
+  
+Người mới tập thường không biết: 
+  - Thả lỏng thế nào là đúng
+  - Giữ trọng tâm thế nào là đúng
+  - Điều chỉnh cơ thể thế nào là đúng
+
+2. Vai trò của Ngũ Hành Trạm Trang
+
+Ngũ Hành Trạm Trang cung cấp các tư thế có khuôn mẫu rõ ràng, giúp người mới học cách điều chỉnh cơ thể.
+
+Người mới nên tập trung vào bài 6 hơi thở và Ngũ Hành Trạm Trang để xây dựng nền tảng.
+
+Khi cơ thể và tâm trí phát triển đến một mức độ nhất định, người tập sẽ dần hiểu được Tự Nhiên Trang.
+
+3. Thời gian tập không quyết định hiệu quả
+
+Đứng lâu từ 1–2 giờ hoặc 4 giờ không đồng nghĩa với việc luyện tập hiệu quả hơn.
+
+Đứng 10–30 phút với sự tập trung và điều chỉnh đúng cách có thể có ý nghĩa hơn việc đứng nhiều giờ nhưng tâm trí phân tán.
+
+Chất lượng luyện tập quan trọng hơn thời lượng.
+
+4. Thông điệp chính
+
+Tập đúng quan trọng hơn tập nhiều.
+
+Người mới nên kiên trì rèn luyện nền tảng, chú trọng khả năng quan sát, cảm nhận và điều chỉnh cơ thể thay vì vội vàng chuyển sang phương pháp tự nhiên hoặc kéo dài thời gian đứng.
+
+Kết luận: Theo quan điểm của Châu Hồng Lĩnh trong cuộc hội thoại, Ngũ Hành Trạm Trang là nền tảng phù hợp cho người mới, còn Tự Nhiên Trang và Vô Cực Trang đòi hỏi người tập đã có sự phát triển nhất định về cơ thể và tâm trí.
+
 =============================
 
 Bí quyết về hình Hỏi: Xin nói rõ hơn về người khi tập trang công hơi đẩy trọng tâm về phía trước,hoặc phía sau để làm gì? Đáp: Tạm mượn một hình ảnh của Trần thức. So sánh 2 hình các bạn sẽ thấy trọng tâm của Trần thức đặt ở gót chân. Lối này cho những người dưỡng sinh lớn tuổi gối đã yếu, thế đứng khó trụ vững chảy, chỉ đụng nhẹ sẽ ngã ra sau. Đối với người tập võ thì không nên tập lối này. Cho dù người yếu gối sau một thời gian tập luyện cũng nên dần dần đẩy trọng tâm về giữa bàn chân, về phương diện khí thì sẽ nối liền Dũng tuyền và Hội âm, có khả năng sửa gối, cũng giúp ích phát kình như là sức búng ra.
