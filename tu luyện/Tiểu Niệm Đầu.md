@@ -71,3 +71,9 @@ Không nhanh, không chậm.
 là được.
 
 ---
+
+Trần Quang Khải : Nếu nhìn tay trong clip của anh không rõ lắm, thì chú có thể tham khảo trong clip này: 
+https://www.facebook.com/100079575759287/videos/503327595894287
+Nhưng đừng đánh cứng như trong clip đấy, mà thả lỏng người ra.
+Đây là bài Tiểu Niệm đầu theo lối của dòng Diệp Vấn, cũng không khác nhiều lắm so với dòng Diêu Tài.
+Chú cứ luyện bài Tiểu Niệm đầu này được cái hình là ok rồi, tốc độ phần sau chú chưa luyện được nhanh thì cứ luyện bình thường, không nhanh không chậm.
